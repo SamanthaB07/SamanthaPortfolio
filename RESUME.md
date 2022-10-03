@@ -17,5 +17,5 @@
 - Spending time with my siblings
 
 ## Typing
-- Keys Learned
+Keys Learned
 - J, F, & Space
