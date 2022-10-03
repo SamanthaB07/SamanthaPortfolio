@@ -15,3 +15,7 @@
 - Walking Dog
 - Helping my mom at Royal Animal Refuge
 - Spending time with my siblings
+
+## Typing
+- Keys Learned
+- J, F, & Space
